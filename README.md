@@ -89,7 +89,7 @@ Contributing
 Contributing is fantastic and much welcomed! If you have an issue, feel free to open an issue and start working on it.
 
 
-Reach me on discord my username is shavy#9164
+Reach me on discord my username is Shavy#0504
 
 
 Links
